@@ -10,6 +10,8 @@
 
 [Hario V60 Filters] (https://www.amazon.com/gp/product/B005LLCCQS/ref=ox_sc_act_title_3?ie=UTF8&psc=1&smid=A1NA8IJTU94U4C)
 
+[Hario Slim Grinder] (https://www.amazon.com/Hario-Coffee-Mill-Slim-Grinder/dp/B001804CLY/ref=sr_1_1?s=kitchen&ie=UTF8&qid=1466880739&sr=1-1&keywords=hario+slim)
+
 [Bonavita Gooseneck Water Heater] (https://www.amazon.com/gp/product/B005YR0F40/ref=ox_sc_act_title_2?ie=UTF8&psc=1&smid=ATVPDKIKX0DER)
 
 [Coffee Vault] (https://www.amazon.com/gp/product/B001V9VDP0/ref=ox_sc_act_title_1?ie=UTF8&psc=1&smid=ATVPDKIKX0DER)
